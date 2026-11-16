@@ -61,5 +61,5 @@ KT Ultra Morph  ——  K5 三模型定制版
 ============================
 
 下载链接：https://drive.google.com/file/d/1wBgp36th4P649J_FiSowbd7aFN6GSaF_/view?usp=drive_link
-ktum-crack/s600.png
-
+[ktum-crack/s600.png
+](https://github.com/acefsdff/ktum-crack/blob/main/s600.png)
